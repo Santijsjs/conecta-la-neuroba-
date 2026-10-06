@@ -1,1 +1,1 @@
-# conecta-la-neuroba-
+# conecta-la-neurona-
